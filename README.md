@@ -2,4 +2,4 @@
 
 
 
-![image-20250225115432555](C:\Users\genius\AppData\Roaming\Typora\typora-user-images\image-20250225115432555.png)
+![](https://cdn.jsdelivr.net/gh/Serencounts/nostalgic/test/20250225115753.png)
